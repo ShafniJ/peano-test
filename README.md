@@ -1,4 +1,4 @@
-# The weeknd
+# The Weeknd
 ## After Hours
 Thought I almost died in my dream again (baby, almost died)
 Fightin' for my life, I couldn't breathe again
