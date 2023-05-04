@@ -1,6 +1,6 @@
 # The Weeknd
 ## After Hours
-*Thought I almost died in my dream again (baby, almost died)
+Thought I almost died in my dream again (baby, almost died)
 Fightin' for my life, I couldn't breathe again
 I'm fallin' in too deep (oh)
 Without you, don't wanna sleep (fallin' in)
@@ -54,5 +54,5 @@ I gave it all just to hold you close
 Sorry that I broke your heart, your heart
 And I said, baby, I'll treat you better than I did before
 I'll hold you down and not let you go
-This time I won't break your heart, your heart, no*
+This time I won't break your heart, your heart, no
 
